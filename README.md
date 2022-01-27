@@ -1,1 +1,1 @@
-# bachor.github.io
+Khi vào c nhớ chọn nhịp tim trước nha :))
